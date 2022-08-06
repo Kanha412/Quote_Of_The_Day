@@ -15,3 +15,5 @@
 ![Screenshot (444)](https://user-images.githubusercontent.com/85762282/158265405-351c79af-7bec-41ad-9206-1f808c4f9170.png)
 <br><br>
 ![Screenshot (445)](https://user-images.githubusercontent.com/85762282/158265409-e3580537-8a74-4947-8eac-d3379556384c.png)
+<br><br>
+<a href="https://kanha412.github.io/Quote_Of_The_Day/" target="_blank" style="text-decoration:none;"><i><b>Have A Look By Clicking Here</b></i></a>
